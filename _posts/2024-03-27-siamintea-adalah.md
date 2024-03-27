@@ -1,16 +1,5 @@
-## Siamintea adalah ..
+## Bukber Ramadhan 1445H
 
-`sisi lain` dari kepribadian author yang akan berisi hal-hal unik atau penting untuk di tuangkan.
+### Bukber kantor 16 Ramadhan 1445H
 
----
-
-### Contohnya
-
-#### maaf ya
-
-```Seorang pimpinan yang minta maaf
-aku khawatir kamu marah makanya saya telponin kamu,
-maaf tadi pagi aku agak kasar sama kamu..
-
-Preeeeeet !!!
-```
+Gas lah .. foto-fotonya nyusul, nanti di update.
