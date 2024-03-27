@@ -1,3 +1,7 @@
+---
+permalink: /bukber1445H
+---
+
 ## Bukber Ramadhan 1445H
 
 ### Bukber kantor 16 Ramadhan 1445H
